@@ -1,1 +1,1 @@
-Just a look looking box !
+Just a cool looking box !
